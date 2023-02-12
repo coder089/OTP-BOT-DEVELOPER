@@ -62,11 +62,13 @@
     #Accept/Deny ✅📱🔥
     #Spoof Caller ID”🤡 🔥
     #SETUP A CALL ⚙️ 🔥
+    #User Dashboard 📱🔥
     #Refrence Code on each call 🆕🔥
     
-    # ALL IN ONE BOT
+ALL IN ONE BOT: https://t.me/coder089bot
     
    # DM ME TO OWN A BOT
-    @CODER089
+    Discord: Coder089#8305
+Telegram: https://t.me/Coder089
 
  
