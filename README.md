@@ -68,10 +68,10 @@
     #User Dashboard 📱🔥
     #Refrence Code on each call 🆕🔥
     
-ALL IN ONE BOT: https://t.me/coder089bot
+ALL IN ONE BOT: https://t.me/coder0089bot
     
    # DM ME TO OWN A BOT
     Discord: Coder089#8305
-Telegram: https://t.me/Coder089
+Telegram: https://t.me/Coder0089
 
  
