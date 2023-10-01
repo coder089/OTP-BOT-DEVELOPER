@@ -69,6 +69,10 @@
     #Refrence Code on each call 🆕🔥
     
 ALL IN ONE BOT: https://t.me/coder0089bot
+
+NEW Telegram Channel https://t.me/+I2QcslRt8HM2YTEx
+
+Old Telegram Channel https://t.me/+fzkvq8FdnQY2ZmNh
     
    # DM ME TO OWN A BOT
     Discord: Coder089#8305
