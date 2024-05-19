@@ -68,14 +68,14 @@
     #User Dashboard 📱🔥
     #Refrence Code on each call 🆕🔥
     
-ALL IN ONE BOT: https://t.me/coder0089bot
+ALL IN ONE BOT: https://t.me/coder00089bot
 
-NEW Telegram Channel https://t.me/+I2QcslRt8HM2YTEx
+NEW Telegram Channel https://t.me/+0Pyh0kUCHlE3ZGZh
 
 Old Telegram Channel https://t.me/+fzkvq8FdnQY2ZmNh
     
    # DM ME TO OWN A BOT
     Discord: Coder089#8305
-Telegram: https://t.me/Coder0089
+Telegram: https://t.me/Coder00089
 
  
